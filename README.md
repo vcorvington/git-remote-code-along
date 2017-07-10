@@ -1,2 +1,2 @@
 
-[intentionally left blank]
+[intentionally left blank.]
